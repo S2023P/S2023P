@@ -2,7 +2,7 @@
 - 👀 I’m interested in Global finances, laws and i love to share love ❤️
 - 🌱 I’m currently learning life everyday.
 - 💞️ I’m looking to collaborate on Globalisation and policy regulations 
-- 📫 How to reach me : 
+- 📫 How to reach me : s.rylewicz@gmail.com or call +48 698594686
 
 <!---
 S2023P/S2023P is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
