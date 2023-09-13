@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @S2023P
-- 👀 I’m interested in Global finances, laws and love ❤️
+- 👀 I’m interested in Global finances, laws and i love to share love ❤️
 - 🌱 I’m currently learning life everyday.
 - 💞️ I’m looking to collaborate on Globalisation and policy regulations 
 - 📫 How to reach me : 
